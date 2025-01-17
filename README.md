@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @devanarayanana787
-- 👀 I’m interested in ...Automobile kinematic ,Robotics-kinematics,Arduino,python,android
+- 👀 I’m interested in Mecha-tronics , India
 - 🌱 I’m currently learning ...mechanical engineering
 - 💞️ I’m looking to collaborate on ...team work
 - 📫 How to reach me ...insta== devanarayanana787
